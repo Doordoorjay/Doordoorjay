@@ -5,9 +5,7 @@
 - 🤔 什么都会一点但是什么都不会
 - 🎮 Steam: [夢嵐](https://steamcommunity.com/id/hakarenai/)
 - 📫 联系: [Email](mailto:bililijj@outlook.com)
-<!---
-- 🏳️‍⚧️ Pronoun: they/them
--->
+- 🏳️‍⚧️ 
 - 🌐: CHN🇨🇳/ENG🇦🇺/JPN🇯🇵
 
 
